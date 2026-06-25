@@ -154,4 +154,64 @@ Playoffs—we here now
 Outro (chant loop)
 Right now
 Right now
-Let’s go
+Let’s go...
+
+
+next track..
+
+dirt road heavy rock country
+
+
+Boots in the dirt, not chasing the stars
+Got enough weight right here where we are
+Maps on the table, hands in the clay
+You don’t fix a house by running away
+Static in orbit, headlines scream
+“Further, faster, bigger dream”
+But I’m watching the rivers write their names
+In the same old valleys we forgot to save
+
+We keep looking up like we missed the point
+While the ground beneath us breaks at the joints
+
+We don’t need to leave the Earth to learn
+Don’t need a flame just to watch things burn
+The moon’s a mirror, a quiet stop
+But the work’s down here on the rock we’ve got
+Yeah the work’s down here on the rock we’ve got
+
+Labs in the dust, notes in the night
+Measuring tides, borrowed light
+Test the suits, run the math
+See what survives, see what lasts
+Moon’s good for questions, silence, time
+Perspective pulled back just enough to align
+But answers don’t live in the vacuum cold
+They live where the water, soil, and people fold
+
+You can’t terraform a conscience clean
+By skipping the mess in between
+
+We don’t need to leave the Earth to learn
+Don’t need escape velocity to earn
+The moon’s a checkpoint, not an end
+Just enough distance to look again
+But the work’s down here on the rock we defend
+
+If we can’t keep forests standing
+Or oceans breathing on their own
+What makes us think we’re ready
+To carry life somewhere unknown
+Fix the wires, tend the ground
+Listen to the systems sound
+If we can’t get this right at home
+We don’t deserve another zone
+
+We don’t need to leave the Earth to learn
+The lesson’s here every time it turns
+The moon can wait, it understands
+This planet still needs hands
+One rock, one chance, one spinning line
+Not a backup, not a spare in time
+Look up if you need perspective
+Look down if you want to be effective....
