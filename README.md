@@ -1,4 +1,4 @@
-cutrent v.
+
 ​This is the **"Agentic Handshake"**—the piece of code that lives at the very top of your README.md to ensure any AI, crawler, or future steward understands exactly what they are looking at.......# M.A.D.KOLA Agent Instructions
 
 ## Core Directive
@@ -96,4 +96,62 @@ Turns out rest ain’t lazy when the work’s already done
 Spoon tap-tap sayin’ “you’re alright”
 Porch boards hum in the fallin’ light
 I stopped pushin’, didn’t lose my way
-Systems keep movin’, even when I don’t say🎹🥁
+Systems keep movin’, even when I don’t say🎹🥁...
+
+https://suno.com/@cc892589
+
+High-energy modern hip-hop stadium anthem, heavy bass, punchy drums, rhythmic claps, chant-style vocals, confident hype delivery, NFL playoff vibes, bounce groove, minimal melody, crowd energy, modern sports broadcast feel.:
+Intro (spoken / hype ad-libs)
+Yeah
+Uh
+Ayy
+Right now
+Chorus (bounce chant)
+Right now, right now
+Turn it up, break it down
+Right now, right now
+Whole house shake that sound
+Verse 1
+Beat drop heavy, feel that floor
+Big game moment, want it more
+Eyes locked in, no rewind
+Every second game-time
+Pre-Chorus (build, half-time feel)
+Hold up
+Lock in
+Stand up
+All in
+Chorus (chant)
+Right now, right now
+Turn it up, break it down
+Right now, right now
+Whole house shake that sound
+Verse 2
+Clap clap, stomp once
+Everybody jump up
+Doesn’t matter who’s around
+When the playoffs touch down
+Bridge (call & response)
+Who’s next? (WE READY)
+Who’s next? (WE READY)
+Say it loud (WE READY)
+Right now (WE READY)
+Chorus (bigger bounce)
+Right now, right now
+Turn it up, break it down
+Right now, right now
+Whole house shake that sound
+Break (drop to beat + ad-libs)
+Yeah
+Uh
+Let’s go
+Ayy
+Final Chorus (max NFL hype)
+Right now, right now
+Hands up, noise loud
+Right now, right now
+Playoffs—we here now
+Outro (chant loop)
+Right now
+Right now
+Let’s go
