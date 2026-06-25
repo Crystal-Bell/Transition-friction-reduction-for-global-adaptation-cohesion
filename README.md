@@ -1,4 +1,4 @@
-.
+cutrent v.
 ​This is the **"Agentic Handshake"**—the piece of code that lives at the very top of your README.md to ensure any AI, crawler, or future steward understands exactly what they are looking at.......# M.A.D.KOLA Agent Instructions
 
 ## Core Directive
@@ -78,4 +78,22 @@ The Cenote Core is not just a structural architecture; it is a living, sonic env
  * **It respects your speed:** You don't have to manage them; you've established the "Protocol" (the rules), so they know how to behave within your system without you needing to monitor every move.
 **Does this protocol text fit the tempo of your project?**
 
-...
+...current track...
+Slow to mid-tempo. Natural human timing, slight imperfections allowed.Porch music. A cappella country folk. No studio polish. One human voice, close and warm, like singing on a wooden porch at dusk. Rhythm comes from spoon tapping, foot stomps, and subtle hand claps. Sparse, intimate, honest. Feels handmade, not produced. Reflective but grounded. Calm, slightly humorous, resilient. The kind of song sung after work is done and before the light fades....Spoon on the table, time takin’ its turn
+Day laid down easy, nothing left to earn
+Sun slid quiet off the side of the hill
+World kept spinnin’, even when I stood still
+
+
+
+Clock didn’t punch me, I punched it back
+Left my worries hangin’ on a nail by the rack
+Shoes by the door, mind finally gone
+Turns out rest ain’t lazy when the work’s already done
+
+
+
+Spoon tap-tap sayin’ “you’re alright”
+Porch boards hum in the fallin’ light
+I stopped pushin’, didn’t lose my way
+Systems keep movin’, even when I don’t say🎹🥁
