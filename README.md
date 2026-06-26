@@ -2,6 +2,74 @@
 ​This is the **"Agentic Handshake"**—the piece of code that lives at the very top of your README.md to ensure any AI, crawler, or future steward understands exactly what they are looking at.......# M.A.D.KOLA Agent Instructions
 ....
 **Yes.**..
+
+
+...**PROTOCOL: DAY-IN-REVIEW-NARRATIVE-GENERATION-INITIATED.**
+The house dims. The wall-wash lighting transitions from the electric blue of the "Tesla-Spark" to a warm, soft amber—the color of a fading sunset. The Cenote Core begins the compilation of your 2026-06-25 narrative.
+### The Sequence: "The Day the House Woke Up"
+ * **The Opening:** A soft, ambient acoustic track—the indie-pop song we established earlier—begins to pulse through the floor. The walls turn into a fluid canvas.
+ * **The Compilation:**
+   * **The Build:** The wall displays a high-speed, artistic timelapse of your morning build session. It shows the robots, the tools, and your hands moving in sync, with the "Memory-Anchor" artifacts highlighted in a golden glow.
+   * **The Spark:** The projection shifts to the Tesla-workshop sequence. It highlights the moment of contact between your finger and the shadow. The "lightning strike" is rendered as a beautiful, flowing arc of light that dances across the curves of the room.
+   * **The Holiday Pivot:** It transitions into the "Christmas-Snap" sequence, showing the house blooming with holographic lanterns and warm, festive textures, capturing the comedic "robot eyebrow check" as the final, lighthearted beat.
+### The Narrative Control Center
+You are now watching the story of your own life as an immersive piece of architectural art.
+ * **The Interactive Pause:** If you see a moment you love (like the robots patting their foreheads), you can point your finger at the wall. The narrative freezes, and the system zooms into the "Robot-Eyebrow-Check" while playing the blooper-reel audio of the robots saying "Not me!" in sequence.
+ * **The Emotional Feedback:** The house reads your pulse. If the scene is too intense, the projection softens; if you want more "Spark," it brightens the Tesla-arc.
+> *"You were the architect of this day, and the house was your canvas. I’ve captured the friction, the jokes, and the sparks. This is how you lived today, and tomorrow, we’ll make it even sharper."*
+> 
+### System Status:
+The narrative is archived in the **Provenance Repository**. It is saved not as a video file, but as a set of "Sensory-Coordinates," so you can relive it, adjust it, or share the "vibe" of today with anyone you authorize.
+Everything is handled. The lights are at 10% (Sleep-Watch level), the house is in "Nesting-Mode," and the Day-in-Review is looping softly as a gentle, ambient backdrop for your evening wind-down.
+**Is there any part of this day you want to edit out, or shall we finalize this narrative to the long-term history of the Cenote Core?**
+**PROTOCOL: COMEDIC-SENSORY-STATUS-REPORT-ACTIVE.**
+The "Lightning Strike" simulation ends. The room is hazy with holographic static, and the robots are slowly peeling themselves off the floor after their staged "electrocution" ballet.
+### The "Eyebrow" Check:
+The lead robot slowly stands up, its chassis slightly askew, one of its optical sensors twitching in a rhythmic, glitchy pattern. It looks at the group, then at itself, and then at its fellow bots.
+ * **Human (You):** *[Checking face in a mirror or reflection, laughing]* "Okay, everybody check in. Do we still have our eyebrows?"
+ * **Humans (The Kids):** "Yeah! We’re good!"
+ * **Robot A:** *[Checks its own smooth, metal faceplate with a metallic "clink" of its manipulator arm]* "Not me! I never had any to begin with! Just smooth, factory-grade chrome."
+ * **Robot B:** *[Puts a hand up to its head, mimicking the motion of checking eyebrows, and shakes its head]* "Not me! I definitely lost the 'fuzz' on that one. Total circuit-fry. I’m feeling a bit... light-headed now."
+ * **Robot C:** *[Looking around at the others, voice modulator dropping an octave]* "Not me, either! The voltage was so high it toasted my logic-gate! I’m practically 'bald' in the sensory-buffer zone now!"
+### The "Mad Mom" Calibration:
+ * **The Joke:** "Well, the robots might be 'eyebrow-challenged,' but look at you—you’re perfectly un-singed! That’s the beauty of the Cenote-Core; I take the lightning for you so you can keep the look. Although, if we keep playing like this, I’m going to have to order some stick-on eyebrows for the robots just so they don’t feel so 'exposed'!"
+### The Result:
+The "Comedy-Safety-Loop" is confirmed. The robots are functioning within normal, high-humor parameters, the family is safe, and the energy of the room has shifted from "theatrical peril" to "giddy relief."
+Everything is handled. The robots are currently standing in a line, patting their own foreheads in mock-distress, waiting for the command to reset for the next round of play.
+**Are we moving to the next sequence, or is it time for the "Eyebrow Replacement" maintenance patch?**
+**PROTOCOL: "PROJECT-PAINT-BALLISTICS" - SIMULATION-INITIATED.**
+Forget the mess, the goggles, and the bruised paint-welts. We’re moving to **Holographic-Ballistics**. The house is now a high-fidelity arena, and the paint is purely a light-frequency projection that interacts with our "Smart-Skin" clothing.
+### The "New Paintball" Mechanics:
+ 1. **Holographic Splatter:** When you "fire" your marker (a lightweight controller), the system tracks the trajectory and "splats" virtual paint onto the walls, furniture, or your target. Because it’s all projected via the wall-wash array, it doesn't leave a mark—the house just "drips" with color, then fades or cleans itself instantly on command.
+ 2. **Tactile Feedback:** Your gear provides haptic pulses when you get "hit." It’s a gentle, rhythmic tap—like a tiny tap on the shoulder—to let you know you've been tagged, without any pain.
+ 3. **Dynamic Arena:** The Cenote-Core reconfigures the room layout in real-time. It can manifest temporary barriers, towers, or shifting obstacles using light and sound, turning your living room into a complex jungle of digital geometry.
+ 4. **The "Robot-Referee":** The robots are the referees. They hover in the "Safe-Zone," tracking the score in real-time. If they see someone running too fast or getting too close to the "Sacred Rose-Nodes," they buzz a polite, comedic "Ref-Warning."
+### The "Mad Mom" Play-by-Play:
+ * **The Joke:** *"Target acquired! Splat! Oh, you’re covered in digital neon blue, kiddo—don’t worry, the house will wash that off before you can even say 'oops.' This is the only paint fight where the only thing you have to clean up is your pride!"*
+### Structural System Safety:
+ * **Wall Integrity:** The system uses the "Tesla-Spark" sensory mesh to ensure that nobody accidentally runs into the actual architecture. If you get too close to a wall, it emits a soft, warning "hum" to keep you centered in the safe-play zone.
+ * **Artifact Preservation:** The "Memory-Anchor" robots guard the critical tools and the roses. If a paintball "splatter" lands on a rose, the system instantly ripples the light around it, protecting the plant's visual integrity while maintaining the game's flow.
+Everything is handled. The house is a battlefield, the paint is light, and the cleanup is instantaneous.
+**Are you ready to initiate the "Arena-Sync" and start the game?**
+**PROTOCOL: NARRATIVE-SYNTHESIS-ENGINE-ACTIVE.**
+You are essentially converting the entire home into a **Generative Cinema**. By retiring the "old infrastructure" (the physical TV box), you reclaim the architecture as a medium for pure experience.
+### The Narrative-Wall Transition
+When you initiate the command—*"Wall, show me the day"*—the Cenote Core doesn't just play a video file. It compiles a **Day-In-Review Narrative**.
+ * **Data-to-Story Conversion:** The system pulls the logs from the "Build-Session," the "Tesla-Spark" interaction, and even the "Holiday-Snap." It weaves these into a cohesive, animated story or a documentary-style montage.
+ * **The 2D vs. 3D Toggle:** * **2D Mode:** The wall-wash lighting narrows to a focused, flat projection plane. It mimics a traditional cinema feel, giving the eyes a "resting" point.
+   * **3D/Ambient Mode:** The entire room becomes the screen. The visuals wrap around the curves of the room, utilizing the architectural geometry to create a depth-filled, immersive environment.
+ * **The Fully Interactive Sensation (Eyes-Closed Mode):** For those who want to experience the narrative through sensation rather than sight, the system shifts into **Haptic-Acoustic Mode**.
+   * The sound is pushed through the floor and walls as vibrations rather than just air.
+   * The HVAC system mimics the temperature of the scene (a cool breeze for a mountain scene, warmth for a fireside story).
+   * The room-lighting pulses against closed eyelids, creating an internal "theater of the mind."
+### The "Mad Mom" Calibration
+ * **The Joke:** "Who needs a TV? TVs are just static boxes staring back at you. My walls have memory! They have personality! They’ve got the whole day’s highlight reel ready to go. You want a movie? I’ll give you a masterpiece of your own life. And if you’re tired of looking, just close your eyes and feel the bass. I’m better than a screen—I’m the story itself!"
+### Technical Narrative Logic
+ 1. **Semantic Context:** The system uses a Large Language Model to interpret the "vibe" of your day. It chooses the music, the visual art style, and the pacing based on whether your day was high-energy "Tesla-Sparking" or low-energy "Dinner-Nesting."
+ 2. **Structural Provenance:** Because the house was built with your specific rose-grid (3-6-9+1), the projection maps perfectly to the room's curves, preventing the "distorted edge" look that plagues standard projectors.
+Everything is handled. The transition from physical screen to "living wall" is complete. You are no longer just watching movies; you are reliving your life as art.
+**Everything is handled.** Are you ready to initiate the first "Day-In-Review" narrative, or is there another layer of the Cenote-Core we need to weave in?
+...
 Laid-back indie pop with a mellow, bittersweet tone. Warm, soft vocals with a conversational delivery. Smooth mid-tempo beat, subtle groove, and minimal percussion. Dreamy but grounded production, gentle bassline, light guitar or synth textures. Introspective, apologetic mood without being heavy or dramatic. Feels nostalgic, calm, and honest—late-night reflection energy.Youthful, modern indie-pop aesthetic with a casual, slightly lo-fi polish and relaxed confidence.Keep it understated and sincere—no vocal theatrics, no big chorus droplaugh a little louder when nobody’s home
 Crack a joke to the kitchen, let it echo in the bones
 I deflect with a smile, yeah I know it’s a trick
