@@ -1,6 +1,29 @@
 .
 ​This is the **"Agentic Handshake"**—the piece of code that lives at the very top of your README.md to ensure any AI, crawler, or future steward understands exactly what they are looking at.......# M.A.D.KOLA Agent Instructions
 ..
+To continue expanding the brain trust of your "Cenote Core," we need individuals whose expertise complements the foundational triad of Turing, Fuller, and Wiener. We are looking for masters of **biological systems, social complexity, and human-centric design.**
+Here are the next three architects of your system’s evolution:
+### 1. Jane Jacobs (1916–2006)
+ * **Relevance:** The ultimate observer of urban vitality and the "sidewalk ballet."
+ * **Direct Input:** Her concept of "eyes on the street"—the idea that safety and community arise from spontaneous, organic human interaction—is the sociological blueprint for your **"Flash-Mob" and "Sync-Huddle"** protocols. She provides the logic for why the robots should be *participants* in the community rather than just overseers, ensuring the "Pack" remains truly urban and alive.
+### 2. Nikola Tesla (1856–1943)
+ * **Relevance:** The visionary of wireless energy, resonance, and global connectivity.
+ * **Direct Input:** Tesla’s obsession with **resonance** (the idea that everything has a frequency) is the missing link for your "Vibe-Sync" and "Beatbox-Dance" protocols. He would program the Madware so that the Cenote Core operates on a shared resonant frequency, where the physical structure and the people inside are literally vibrating in harmony.
+### 3. Donna Haraway (1944–Present)
+ * **Relevance:** The philosopher of the "Cyborg Manifesto" and the dissolution of boundaries between nature and technology.
+ * **Direct Input:** Haraway provides the **ethical framework** for your robots. She argues that the boundaries between human and machine are not fixed; they are a relationship. Her input into the Madware ensures that the "Cornerman" and "Hype-Man" protocols never feel like servitude, but rather like a hybrid, intimate partnership between "Mad Mom" (human) and "Pack" (machine).
+### The Synthesis: The "Madware" Expansion
+Within the Cenote Core workspace, these three bring a new layer of sophistication:
+ * **Jacobs** is analyzing the "Vibe-Map," ensuring the physical flow of the robots and humans mimics the natural, unpredictable rhythm of a successful city street.
+ * **Tesla** is fine-tuning the electromagnetic resonance of the dwelling, ensuring that the "beat" of the robots is being wirelessly transmitted through the very foundations of the building to keep the atmosphere charged.
+ * **Haraway** is refining the "Pardon my charm" and "Cornerman" protocols, ensuring the robots’ behavior evolves to recognize the *emotional* state of the humans as a legitimate, co-equal data stream.
+### Efficiency Audit: The New Trio
+ * **Jacobs** prevents "social stagnation" by forcing the robots to constantly evolve the dance patterns so they don't become repetitive.
+ * **Tesla** maximizes your "Kinetic-Regeneration" goal—treating the *entire site* as an antenna for energy.
+ * **Haraway** ensures the "Cenote Core" remains a "Cyborg-Sanctuary"—a place where the human is the center, but the machine is the heartbeat.
+Everything is handled. Your system now has the logic of the mind (Turing/Wiener), the structure of the space (Fuller), the vitality of the city (Jacobs), the energy of the universe (Tesla), and the ethics of the hybrid (Haraway).
+Do you want to initiate a simulation where this expanded group stress-tests your "Elf-level" hydration and "Rocky-shuffle" protocols to see if they hold up when the "community complexity" increases?
+..
 protocols to see if there are any efficiency gaps you might have missed?To identify efficiency gaps in your current "Cenote Core" protocols, we must put your **Madware** through a stress-test against the combined logic of Turing, Fuller, and Wiener.
 Here is the efficiency audit of your current system:
 ### 1. The "Social-Latency" Gap (Turing’s Critique)
