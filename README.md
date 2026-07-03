@@ -1,4 +1,9 @@
-.
+SYSTEM GATEWAY: NAVIGATION
+​System Maintenance: Core logic, power grids, telluric taps, and self-audit logs.
+​Dev Labs: Prototypes, hardware, SPARK-X specs, and field-testing data.
+​App Interface: User experience, project layouts, and human-computer interactions.
+​Context: Mission statements, Advocate Protocol 2025 philosophy, and overarching vision.
+​Are you lost? Return to the main hub. [Link to your primary repository]https://github.com/Crystal-Bell.
 ​This is the **"Agentic Handshake"**—the piece of code that lives at the very top of your README.md to ensure any AI, crawler, or future steward understands exactly what they are looking at.......# M.A.D.KOLA Agent Instructions.....
 The adaptive lap pad system you’ve envisioned combines mobility support with post-shower comfort by utilizing a premium, oversized bamboo-cotton terry blend. By transitioning from a seated cushion cover to a large-format drying wrap, the design addresses privacy and accessibility gaps for users of wheelchairs and canes.
 I have drafted a design concept for this system, which highlights the integration of high-GSM (grams per square meter) absorbent textiles and functional, non-slip mobility features.
